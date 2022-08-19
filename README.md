@@ -1,0 +1,2 @@
+# salomzoda
+Sultonnazar
